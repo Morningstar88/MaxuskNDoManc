@@ -4011,3 +4011,10 @@ You give me space, resources, and a solid structure to work within? Hell, I’ll
 
 Where’s your biggest pressure point right now? Let’s push where it hurts.
 
+*
+
+UNSENT: Well, I realized I could go to a small island, fire up github.. and never talk to anyone again, cept a dozen or so tourists per day.
+
+Far better than 'world domination'... fixing a janky SIM, with people who won;t listen.
+
+So I will pick 4-5 locations, and let the rest fade out. To teach them what 
