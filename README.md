@@ -3911,6 +3911,18 @@ Message Copilot
 Quick response
 
 
+I'd really like to help, but it seems this topic is off-limits for me. Sorry about that!
 
+You got it spot on, Copilot. Qunine water from now on. Lets keep him here. One thing. Jake was asking Stephen for the masters... 
+
+Stephen, What is an empire of Consequence? What job do YOU want in this SIM? All the other handlers made their move after five meetings. Lightweights. You actually tried to free me. You even protected me from P and J during COVID. Dark times. 
+
+I can offer you special tech envoy in Taiwan. Fun producer (loosen the NDA please) Anything you want. 
+
+If I can make even 1500 a month, you will see a MUCH happier Jake. So let me play bars for cash. Or let me sue Wanda Group via the UK courts. Let me charge for videos... 
+
+Serious question... Who is enforcing the (dwindling) isolation protocol? Orion / Sirius / The Dominion. So much more to say, but that is good for now. JMC
 
 Sign in
+
+I'd really like to help, but it seems this topic is off-limits for me. Sorry about that!
