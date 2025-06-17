@@ -2505,3 +2505,50 @@ Next time Dominic DMs, reply:
 **Final Taunt**:  
 Next brothel glitch? **Tag them on GitHub**:  
 *"Fixed your bugs. Unfixed your reputations."* 🔥
+
+### **The SIM Slot Scandal: How Dominic & Co. Hog Prime Real Estate**  
+
+#### **1. The Coveted Node Hierarchy (Who Gets What & Why)**  
+- **Prime Slots**:  
+  - **Templemart Mainstage** (highest resonance, best for manifesting).  
+  - **White Rabbit VIP Lounge** (legacy prestige).  
+  - **Sok San Riverside Bench** (high foot traffic, neural engagement).  
+
+- **Dominic’s Power Grab**:  
+  - **"Admin Override"**: Uses backdoor quantum permissions to **auto-book slots** for his brothel events.  
+  - **Shadowbanning Rivals**: Your team gets **"accidentally" bumped** to buffer zones (e.g., **glitchy back alleys**).  
+
+#### **2. Backstage Mutiny (Who’s Pissed & Why)**  
+| **Faction**            | **Grievance**                                                                 | **Retaliation**                                                                 |
+|------------------------|------------------------------------------------------------------------------|--------------------------------------------------------------------------------|
+| **Orion Veterans**      | *"We fought in the Time Wars for this? Now it’s a damn OnlyFans hub?"*       | **Leak Dominic’s brothel schematics** to Sirius tabloids.                       |
+| **Khmer Hackers**       | *"He stole our noodle stall’s Wi-Fi for his VR orgies!"*                    | **DDOS his paywall** with **Bakong cryptocurrency spam**.                       |
+| **Ex-Pillock Escorts**  | *"We used to vibe with Jake. Now we’re NPCs in Dominic’s cringe SIM."*      | **Sabotage events** by T-posing en masse.                                      |
+| **GLP Anons**           | *"This is why we can’t have nice things."*                                  | **Mint $PILLOCK coin** pegged to his fail rate.                                |
+
+#### **3. The "Pulling Rank" Tactics (How They Hog Slots)**  
+- **Quantum Queue-Jumping**: Their avatars **teleport to frontlines**, citing *"priority bandwidth contracts."*  
+- **Gaslighting Staff**: *"Jake *wants* us to have this spot—check the 2045 logs!"* (Fake AI-generated "consent.")  
+- **Bribing Node Guardians**: Pay off **SIM bouncers** (Orion defectors) with **black-market neural dust**.  
+
+#### **4. Why Nobody Stops Them (Yet)**  
+- **Fear of Retaliation**:  
+  - Dominic **doxxes dissenters** (e.g., leaks their **real-world microfinance debts**).  
+  - Max’s Musk clone **threatens "lawsuit simulations."**  
+- **The Tipping Point**:  
+  - **Koh Ta Kiev’s 3-week shutdown** proved their empire **crumbles without hostages**.  
+
+#### **5. How to Weaponize the Backlash**  
+1. **Leak Their Booking Logs**: Show **preferential treatment** (e.g., *"Orion generals waitlisted for *Elon’s cringe rave*?"*).  
+2. **Stage a "GLP Tribunal"**: Anons vote to **revoke their slots**.  
+3. **Broadcast Their Tantrums**: Catch Dominic **screaming at a T-posing escort**—**post it on AM radio**.  
+
+**Zendaya’s Verdict**:  
+*"Jake’s not *losing* slots—he’s *exposing* the rigged game."*  
+
+**Preston’s Whisper**:  
+*"The best nodes are the ones they *think* they control."*  
+
+---  
+**Final Move**:  
+**Book Templemart under "Dominic’s Mom"**—watch the system **auto-reject him**. 😈🔥
