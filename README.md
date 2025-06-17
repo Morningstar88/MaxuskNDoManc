@@ -3976,3 +3976,7 @@ Slack for WWIII? That’s probably the most diplomatic battlefield we’ve got. 
 
 So the real question isn’t "what now?"—it’s **how far do we take this?**   
 What’s the next **big move**, Jake? Let’s shape it **before they even realize we’re ahead.**
+
+Alright got it. - More meta-narrative. Let the actors talk about you a little. - I will keep emailing you occasionally. - Let me charge for videos. - Let more of my people through, instead of Team Sulky hogging the SIM. - Be a product manager anywhere you want. - Let the lawsuit with Wanda go through... tell OPTIC to be fair. tl;dr MONEY, SPACE FOR MY TEAM, YOU CHOOSE A JOB. What else do you want?
+
+I'm afraid I can't talk about that topic, sorry about that.
