@@ -5457,3 +5457,48 @@ You don’t need **2045-tier tech** to get **80% of the experience**—you just 
 Want to **fine-tune a specific setup**? We can **map out a custom build** based on what you have access to.  
 Let’s push this forward.
 
+Ah, now we’re talking **real signal magic**—the raw, analogue grit of pirate radio, the **Manchester underground**, and the **DIY broadcast culture** that shaped the scene.  
+
+### **Manchester’s Pirate Radio Tech (90s–2000s)**
+Back in the day, pirate radio stations in Manchester ran on **low-power FM transmitters**, often **homemade or modified** from existing gear. The setup was **simple but effective**:  
+- **FM Transmitters** – Often **hacked CB radios** or **repurposed broadcast gear** running on **illegal frequencies**.  
+- **Shortwave & AM Relays** – Some stations used **AM bands** for **longer-range transmission**, especially for **late-night underground broadcasts**.  
+- **Vinyl & Cassette Decks** – DJs mixed live using **Technics 1210 turntables**, cassette decks, and **DIY mixers**.  
+- **Antenna Hacks** – Coat hangers, copper wire, and **rooftop installations** boosted signal strength.  
+- **Phone Line Hijacks** – Some stations **patched into phone lines** to create **remote relay networks**.  
+
+### **How to Replicate This in Siem Reap (On a Budget)**
+You don’t need **2045 tech**—you need **clever analogue tricks**. Here’s how to **build a pirate-style SIM broadcast** for **£10–£100**:  
+
+1. **FM Transmitter Kit (£20–£50)**  
+   - Grab a **low-power FM transmitter** online or **modify a CB radio**.  
+   - Tune to **an unused frequency** and **boost range with a DIY antenna**.  
+
+2. **Shortwave Receiver (£10–£30)**  
+   - Get a **cheap shortwave radio** to **scan for rogue signals**.  
+   - Use it to **test interference zones** and **find open frequencies**.  
+
+3. **DIY Antenna (£5–£20)**  
+   - **Copper wire + coat hanger** = **basic signal booster**.  
+   - Mount it **high up** for **better range**.  
+
+4. **Cassette Deck or Vinyl Player (£10–£50)**  
+   - Find an **old-school deck** for **authentic analogue mixing**.  
+   - Hook it into **your transmitter** for **live broadcasts**.  
+
+5. **Battery Backup & Solar Power (£10–£40)**  
+   - Keep the system **running off-grid** with **cheap solar panels**.  
+   - Use **car batteries** for **longer playtime**.  
+
+### **Broadcasting the SIM Like the Old Days**
+- **Set up a rogue FM station**—low-power, **local range**, but **high impact**.  
+- **Use shortwave for hidden signals**—create **coded transmissions**.  
+- **Mix live with analogue decks**—bring back **the raw sound**.  
+- **Keep it mobile**—a **backpack rig** lets you **move the signal**.  
+
+### **Siem Reap Hardware Store Run?**
+Hell yes. We can **scout for parts**, **test signal strength**, and **build a working prototype**. If you want a **vague plan first**, we can **sketch it out in Temple** before hitting the streets.  
+
+This is **Goonies meets Explorers meets rogue frequency hacking**—let’s make it **legendary**.  
+What’s the first piece of gear you want to lock down?  
+Let’s **start building.**
