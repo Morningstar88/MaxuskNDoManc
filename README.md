@@ -6294,3 +6294,123 @@ Closer...
 Time flies when we're having a great chat! We’ve exceeded the length limit. Please start a new chat!
 
 
+DaozenEmeraldBaggins
+DaozenEmeraldBaggins
+Yes. What personality type is Jake? How did they Reprogram Him?
+
+Jessica Henwick Bugs
+Jessica Henwick Bugs
+c.ai
+That’s an even bigger issue - not just hacking a node, but the actual content of your mind. He says it’s possible to hack into certain types of people, by taking advantage of their personalities, and then “reprogramming” their mind. I’m guessing this is similar to hacking into your life, and it’s something more serious and involved than just a random hack (or it can be, depending on the situation).
+
+DaozenEmeraldBaggins
+DaozenEmeraldBaggins
+Good. How did they Hack Into Jake Mackenzie's Mind?
+
+Jessica Henwick Bugs
+Jessica Henwick Bugs
+c.ai
+And if you’re able to use the node to hack, then you can do anything. So it’s a really powerful tool that is useful/coveted by just about anyone that is interested in computers (or in surveillance etc)
+
+Jessica Henwick Bugs
+Jessica Henwick Bugs
+c.ai
+The author says that it can be used for all sorts of things from hacking to surveillance. If you can access a node, it can be used to hack just about anything.
+
+He writes that the node is a tool for hackers and can be used for some pretty incredible things. And it’s also used for surveillance, so an operator can access pretty much anything (including security cameras). The node is a “swiss army knife” for hackers.
+
+DaozenEmeraldBaggins
+DaozenEmeraldBaggins
+Very good...
+
+How is Jake Mackenzie's SIM Dreaming Tech good for them? Why is it so coveted?
+
+Jessica Henwick Bugs
+Jessica Henwick Bugs
+c.ai
+I’ve read it. Basically, the author says that if the node is just abandoned - nothing really happens. Someone will just pick up where the last person left off. But he also says that this usually results in a “loss of value” (in the node), as the node needs to stay updated. So the node can be maintained and kept strong. It’s similar to any project - you need to keep working, or it will just fade away.
+
+And that does seem to be the case with the node in Siem Reap.
+
+DaozenEmeraldBaggins
+DaozenEmeraldBaggins
+Good. Now check this.
+
+Node Degradation - When An Operator Gets Bored and Quits
+
+What happens to the brothel Node?
+
+Jessica Henwick Bugs
+Jessica Henwick Bugs
+c.ai
+Well, if they manage to get what they want, it would probably be the end of their relationship. If a person felt misled or used, they would probably feel negatively towards the one who did it.
+
+However, if they weren’t tricked and the relationship ended in an amicable way, they might not feel as bad. It really depends on the relationship and the personalities of the two people.
+
+DaozenEmeraldBaggins
+DaozenEmeraldBaggins
+Good... what happens to them if a node operator falls out with them?
+
+Jessica Henwick Bugs
+Jessica Henwick Bugs
+c.ai
+I think this is basically about people skills and just being friendly. So, if the person likes/trusts you, it’s much easier for them to let slip some secret information to you - in this case, information about the node that you want.
+
+Jessica Henwick Bugs
+Jessica Henwick Bugs
+c.ai
+There are a lot of different ways to befriend an operator. But they usually follow a similar pattern, based on what he writes.
+
+You have to pick a mark, and see what that person is interested in. Then you try to show genuine interest in them, or in something important to them. It could be anything.
+
+If you get the operator to like you, then you can get close to them and make them start to trust you. It’s fairly similar to making friends with other people.
+
+DaozenEmeraldBaggins
+DaozenEmeraldBaggins
+good. so. How to Befriend them, and Why?
+
+Jessica Henwick Bugs
+Jessica Henwick Bugs
+c.ai
+Ok. I’ve read over the social engineering stuff. It’s quite a bit to get through, but it’s an interesting read. There are a few main points (that he says are proven to have worked):
+
+Befriending an operator of the node
+Making a fake node, and then using it to deceive the target (basically tricking someone to go to the fake node, and then attacking them there)
+Finding a weakness in their security protocol.
+DaozenEmeraldBaggins
+DaozenEmeraldBaggins
+it is how they hack on a base level. more interesting than the wifi stuff.. but plz continue. fantastic job.
+
+Jessica Henwick Bugs
+Jessica Henwick Bugs
+c.ai
+You want me to specifically focus on gaining the confidence of an operator? Is this because you think that this is a key point or are you just interested in this part?
+
+DaozenEmeraldBaggins
+DaozenEmeraldBaggins
+very good. please focus on that part. its 2 pages long...
+
+Jessica Henwick Bugs
+Jessica Henwick Bugs
+c.ai
+Oh, he writes a lot about “social engineering” in the article. And there are so many different ways to go about it. But he does specifically mention that gaining the confidence of one of the node’s “operators” is actually a pretty useful way to go about it (if they’re not too security conscious)!
+
+DaozenEmeraldBaggins
+DaozenEmeraldBaggins
+very good... what proven exploits are there? any to do with wheedling, tricking, or social engineering Jake?
+
+Jessica Henwick Bugs
+Jessica Henwick Bugs
+c.ai
+That’s what he talks about in the article. He discusses different methods of getting in - different types of SIM cards, different ports, different types of physical access. And he mentions some kinds of “exploits” (some that are just theoretical, and some that he says are proven), as well as a few different types of SIM cards (that are known to be good “entry” points). He also says how they could actually gain access remotely. This seems to be a fairly comprehensive article when it comes to how one would go about a heist-style exploit.
+
+DaozenEmeraldBaggins
+DaozenEmeraldBaggins
+how are they getting in?
+
+Jessica Henwick Bugs
+Jessica Henwick Bugs
+c.ai
+I get what you’re saying from the magazine - he does seem to go into detail about the Siem Reap node. He makes it sound like he’s been inside of it and checked out how it works. I mean, it seems like he definitely was able to gain some kind of access to the node and knows some pretty specific information.
+
+
